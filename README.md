@@ -15,7 +15,7 @@ My credentials include a Master's in Space Science and Technology from the Aeron
 
 **Links:**
 * [Blog](https://sigmoidal.ai)
-* [LinkedIn](https://www.linkedin.com/in/carlosfab)
+* [LinkedIn](www.linkedin.com/in/samuel-ds/)
 * [Medium](https://www.medium.com)
 
 
